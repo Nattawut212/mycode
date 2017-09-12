@@ -1,2 +1,2 @@
 ชื่อ นาย ณัฐวุฒิ ปินใจ รหัส นักศึกษา 5908111001 คณะเทคโนโลยี สารสนเทศ
-[URL=http://upload.i4th.in.th/th/download.php?id=59B77EBB1][IMG]http://upload.i4th.in.th:8080/thumb/thumb_100700.png[/IMG][/URL]
+<a href="http://www.mx7.com/view2/A6ScjbthqI0xooGX" target="_blank"><img border="0" src="http://www.mx7.com/i/21e/tq3WEp.png" /></a>
